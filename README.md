@@ -1,2 +1,3 @@
 # hello-world
 The guide told me to do that, honestly...
+Oh my, oh my.. where to  begin. I'm being put through the test by hubot, the master. Wha? what?.. oh.. OH.. yea, I like it very much here. that's absolutely what I wanted to say, no influence, nope just my thoughts;
